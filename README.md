@@ -28,7 +28,7 @@ Si deseas saber más sobre mis prácticas o cualquier otro aspecto de los proyec
 
 **Antonio Salces**  
 Correo electrónico: [antoniosalces06@gmail.com]  
-LinkedIn: [Tu Perfil de LinkedIn](https://www.linkedin.com/in/antonio-salces-alcaraz/)
+LinkedIn: [pincha aquí](https://www.linkedin.com/in/antonio-salces-alcaraz/)
 
 ---
 
